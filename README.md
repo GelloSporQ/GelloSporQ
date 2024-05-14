@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Gello SporQ
+- 👀 I’m interested in a free future for all.
+- 🌱 I’m currently learning code and stand up comedy
+- 💞️ I’m looking to collaborate on artistic projects including vdeo visual and audio editing.
+- 📫 How to reach me TXT line (425)683-6489
+- 😄 Pronouns: Bo/Bim, Any/All, NA/IDC
+- ⚡ Fun fact: I am an immortal being trapped in a mortal shell and so are you
